@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Viyacornn
+- 👀 I’m interested in Programming Crackking, Codding
+- 🌱 I’m currently learning Game Codding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me with number
